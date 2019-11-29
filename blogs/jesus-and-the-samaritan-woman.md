@@ -37,7 +37,7 @@ To this, the woman replied that she did not have a husband.
 
 > Jesus said to her, “You are right when you say you have no husband. The fact is, you have had five husbands, and the man you now have is not your husband. What you have just said is quite true.”
 
-The point Jesus made, is that she was in a sinful relationship and she needed salvation that only he, Jesus, could offer.  
+The point Jesus made was that she was in a sinful relationship and she needed salvation that only he, Jesus, could offer.  
 
 It was a startling revelation to the Samaritan woman, who immediately realized that Jesus was greater than she thought:
 
@@ -63,18 +63,18 @@ The Samaritan woman had not yet deciphered that Jesus was the Messiah, but she d
 - That the Messiah had not yet come.
 - The Messiah would be a teacher, and not a conqueror.
 
-Jesus takes this opportunity to reveal his true identity:
+Jesus took this opportunity to reveal his true identity:
 
 > Then Jesus declared, “I, the one speaking to you—I am he.”
 
 
 ## Word of the Messiah Spreads
 
-The Samaritans believed the woman's testimony. Her confession regarding her past was so explicit that she became a compelling advocate for the credibility of Christ. This is very telling in a time where woman could not act as legal witnesses. But her testimony was so powerful it transcended all social boundaries. 
+The Samaritans believed the woman's testimony. Her confession regarding her past was so explicit that she became a compelling advocate for the credibility of Christ. This was very telling in a time when woman could not act as legal witnesses. But her testimony was so powerful it transcended all social boundaries. 
 
 ## Conclusion
 
-Testimonies are powerful. They are so powerful that they exceed all social conventions. In the case of the Samaritan woman, Christ knew her sins but also loved her and reached out to her. God has a bigger plan for people, and He uses all people to His means. Pray to God to uncover what His purpose is for you today. 
+Testimonies are powerful. They are so powerful that they exceed all social conventions. In the case of the Samaritan woman, Christ knew her sins but also loved her and reached out to her. God has a bigger plan for you, and He uses all people to His means. Pray to God to uncover what His purpose is for you today. 
 
 I hope you enjoyed reading this breakdown of Jesus and the Samaritan woman.
 
