@@ -1,4 +1,4 @@
-Jesus of Nazareth, who was born between 6 BC and 4 BC, is the central religious figure of Christianity. Even though his ministry only lasted approximately 3 1/2 years, he left a lasting impact on the whole world for generations to come.
+Jesus of Nazareth, who was born between 6 B.C. and 4 B.C., is the central religious figure of Christianity. Even though his ministry only lasted approximately 3 1/2 years, he left a lasting impact on the whole world for generations to come.
 
 The teachings of our Lord and Savior Jesus Christ help you to learn more about the most influential person who ever lived. Below is a compilation of the best Jesus quotes about love.
 
