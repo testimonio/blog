@@ -17,5 +17,3 @@ Here are some helpful ways to describe what Christian meditation is not:
 - Christian meditation is not contrary to Christian teachings. It is mentioned in the Bible 23 times.
 
 Christian meditation is a statement of faith. It is all about God's will and being in union with God. In the Bible, it states “keep this Book of the Law always on your lips; meditate on it day and night, so that you may be careful to do everything written in it. Then you will be prosperous and successful.” (Joshua 1:8 NIV). The Bible is the easiest way to meditate on God's will. Biblical meditation allows for us to understand what God is doing in our lives. It is all about paying attention to God's love. The ultimate goal of Christian meditation is to live like Jesus Christ. The practice of meditation should lead to a changed life in the presence of God.
-
-[Read more](https://testimon.io/what-is-christian-meditation)
