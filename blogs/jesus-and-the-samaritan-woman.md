@@ -75,7 +75,7 @@ Jesus took this opportunity to reveal his true identity:
 
 > Then Jesus declared, “I, the one speaking to you — I am he.”
 
-The Samaritan woman, leaving her jar, went back to town to spread the word about Jesus. This is a pure statement of faith. She knew now that Jesus Christ was the messiah, the Savior of the world. She knew He held the Spirit and the Truth. Only He could give eternal life. Jesus teaches that people are not defined by their sin, but by what they do for God. The Samaritan woman set aside her sin, and began working for God's purpose.
+The Samaritan woman, leaving her jar, went back to town to spread the word about Jesus. This is a pure statement of faith. She knew now that Jesus Christ was the messiah, the Savior of the world. She knew He held the Spirit and the Truth. Only He could give eternal life. Jesus teaches that people are not defined by their sin, but by what they do for God. The Samaritan woman set aside her sin, and began working toward God's purpose. This is the quintessential essence of living a Christian life. 
 
 ## Word of the Messiah Spreads
 
