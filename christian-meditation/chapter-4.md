@@ -1,8 +1,8 @@
 ## Guided and unguided Christian meditation
 
-Christian meditation starts and ends with God's word. If you have a Bible, you can get started today. With any new habit, beginners often benefit with the help of a guide - in person or via a recording. Guided Christian meditation provides clear instruction and support for the end-user.
+Christian meditation starts and ends with [God's word](https://testimon.io/blog/is-jesus-the-word). If you have a Bible, you can get started today. With any new habit, beginners often benefit with the help of a guide - in person or via a recording. Guided Christian meditation provides clear instruction and support for the end-user.
 
-Unguided Christian meditation is a solo focus on God's word. A person can do unguided Christian meditation with a Bible and focus on God's word. Unguided Christian meditation is not easy to do without the proper experience. It's like flying a plane without an instructor.
+Unguided Christian meditation is a solo focus on God's word. A person can do unguided Christian meditation with a Bible and [focus on God's word](https://testimon.io/blog/is-jesus-the-word). Unguided Christian meditation is not easy to do without the proper experience. It's like flying a plane without an instructor.
 
 Guided Christian meditation is like learning to fly with an experienced pilot. They will offer you nuggets of wisdom and encouragement. Some people will need this guidance for a long period of time. Others will go alone after learning the fundamentals.
 
@@ -14,7 +14,7 @@ These guided meditations are the easiest way to go at your own speed. They provi
 
 **Join a local church or Christian meditation group**
 
-Chances are there is a great church meeting regularly near you. Joining them in Bible study can help you meditate on the Word of God. It will also provide a community for Christian meditation. The body of the Christ is a church. It is a world community for Christians. You are never alone.
+Chances are there is a great church meeting regularly near you. Joining them in Bible study can help you meditate on the [Word of God](https://testimon.io/blog/is-jesus-the-word). It will also provide a community for Christian meditation. The body of the Christ is a church. It is a world community for Christians. You are never alone.
 
 **Unguided Christian meditation**
 
