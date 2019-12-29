@@ -1,14 +1,14 @@
-In Christianity, the **Logos** (Greek: Λόγος, "Word", "Discourse", or "Reason") is a title for Jesus Christ. In the standard Bible, Jesus holds many titles. Jesus is called: Son of God, Christ the Son, Bread of Life, or Lamb of God. Jesus as the Word is not a common reference we hear in Christian life. However, it is important to know Christ as the Word. In the *[Gospel of John 1:1-5 (King James Version)](https://www.biblegateway.com/passage/?search=John+1%3A1-14&version=NIV)*, John the Baptist uses the word Logos to describe Jesus in the beginning (or before creation):
+In Christianity, the [**Logos**](https://en.wikipedia.org/wiki/Logos_(Christianity)) (Greek: Λόγος, "Word", "Discourse", or "Reason") is a title for Jesus Christ. In the standard Bible, Jesus holds many titles. Jesus is called: Son of God, Christ the Son, Bread of Life, or Lamb of God. Jesus as the Word is not a common reference we hear in Christian life. However, it is important to know Christ as the Word. In the *[Gospel of John 1:1-5 (King James Version)](https://www.biblegateway.com/passage/?search=John+1%3A1-14&version=NIV)*, John the Baptist uses the word Logos to describe Jesus in the beginning (or before creation):
 
 > In the beginning was the Word, and the Word was with God, and the Word was God. The same was in the beginning with God. All things were made by him; and without him was not any thing made that was made. In him was life; and the life was the light of men. And the light shineth in darkness; and the darkness comprehended it not.
 
 Jesus is the Christ. There is life in the name of Jesus. He holds the grace and truth. Calling Jesus the Word is a statement of faith in our Christian life. In Jesus the Son, the Word became flesh and dwelt among us. Through the Word of God is the only way to eternal life. If you believe that Jesus is the Word of God, you will have eternal life.
 
-From every Bible study to daily devotionals, every word in the Bible reveal God's hidden nature. Christian theology is based around the Word of God. It reveals God's love for mankind. It gives us the way to live to be present with God. It contains all the questions and answers about the world man can ever think of. Every Word in the Bible is dipped in blood of the Saviour. This is why we call Jesus the Word.
+From every Bible study to daily devotionals, every word in the [Bible](https://www.bible.com/) reveal God's hidden nature. Christian theology is based around the Word of God. It reveals God's love for mankind. It gives us the way to live to be present with God. It contains all the questions and answers about the world man can ever think of. Every Word in the Bible is dipped in blood of the Saviour. This is why we call Jesus the Word.
 
 ## Jesus in the Trinity
 
-Jesus is God's spoken word, according to the World in John's gospel. Christian doctrine solidifies Jesus's place in the Trinity with God the Father and the Holy Spirit. He was in the beginning with God. He is one with the invisible God. 
+Jesus is God's spoken word, according to the World in John's gospel. Christian doctrine solidifies Jesus's place in the [Trinity](https://www.christianity.com/god/trinity/god-in-three-persons-a-doctrine-we-barely-understand-11634405.html) with God the Father and the Holy Spirit. He was in the beginning with God. He is one with the invisible God. 
 
 ## Refuting False Doctrines
 
