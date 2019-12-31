@@ -1,4 +1,4 @@
-The [Gospel of John the Baptist (4:1-42)](https://www.biblegateway.com/passage/?search=John+4%3A1-42&version=NIV) presented a story about an encounter between Jesus and a Samaritan woman. [John's Gospel](https://www.biblegateway.com/passage/?search=John+4%3A1-42&version=NIV) begins this scene as Jesus and his disciples travel northward through Samaria. When Jesus arrived at Jacob's well in the city of Sychar, he was weary from his journey:
+[John 4:1-42](https://www.biblegateway.com/passage/?search=John+4%3A1-42&version=NIV) presented a story about an encounter between Jesus and a Samaritan woman. It begins this scene as Jesus and his disciples travel northward through Samaria. When Jesus arrived at Jacob's well in the city of Sychar, he was weary from his journey:
 
 > Now Jesus learned that the Pharisees had heard that he was gaining and baptizing more disciples than John — although in fact it was not Jesus who baptized, but his disciples. So he left Judea and went back once more to Galilee.
 
