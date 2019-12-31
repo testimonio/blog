@@ -26,7 +26,7 @@ Jesus is the Word because he represents the Father's invisible nature to His cre
 
 ## Conclusion
 
-Jesus is the Word of God to man. He is our salvation and our and our way to the Father. Trust in Jesus, read the Word, and pray for God's revelation in your life. The way to get closer to Jesus is through the Word, and trust that His plans for you are good.
+Jesus is the Word of God to man. He is our salvation and our and our way to the Father. Trust in Jesus, read the Bible, and pray for God's revelation in your life. The way to get closer to Jesus is through the Bible, and trust that His plans for you are good. 
 
 I hope you enjoyed reading this breakdown of "Is Jesus the Word?".
 
