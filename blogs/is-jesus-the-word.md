@@ -1,4 +1,4 @@
-In Christianity, the [**Logos**](https://en.wikipedia.org/wiki/Logos_(Christianity)) (Greek: Λόγος, "Word", "Discourse", or "Reason") is a title for Jesus Christ. In the standard Bible, Jesus holds many titles. Jesus is called: Son of God, Christ the Son, Bread of Life, or Lamb of God. Jesus as the Word is not a common reference we hear in Christian life. However, it is important to know Christ as the Word. In the *[Gospel of John 1:1-5 (King James Version)](https://www.biblegateway.com/passage/?search=John+1%3A1-14&version=NIV)*, John the Baptist uses the word Logos to describe Jesus in the beginning (or before creation):
+In Christianity, the [**Logos**](https://en.wikipedia.org/wiki/Logos_(Christianity)) (Greek: Λόγος, "Word", "Discourse", or "Reason") is a title for Jesus Christ. In the standard Bible, Jesus holds many titles. Jesus is called: Son of God, Christ the Son, Bread of Life, or Lamb of God. Jesus as the Word is not a common reference we hear in Christian life. However, it is important to know Christ as the Word. In the *[John 1:1-5 (King James Version)](https://www.biblegateway.com/passage/?search=John+1%3A1-14&version=NIV)*, John the Baptist uses the word Logos to describe Jesus in the beginning (or before creation):
 
 > In the beginning was the Word, and the Word was with God, and the Word was God. The same was in the beginning with God. All things were made by him; and without him was not any thing made that was made. In him was life; and the life was the light of men. And the light shineth in darkness; and the darkness comprehended it not.
 
@@ -8,7 +8,7 @@ From every Bible study to daily devotionals, every word in the [Bible](https://w
 
 ## Jesus in the Trinity
 
-Jesus is God's spoken word, according to the World in John's gospel. Christian doctrine solidifies Jesus's place in the [Trinity](https://www.christianity.com/god/trinity/god-in-three-persons-a-doctrine-we-barely-understand-11634405.html) with God the Father and the Holy Spirit. He was in the beginning with God. He is one with the invisible God. 
+Jesus is God's spoken word. He is the communication of God to mankind. Christian doctrine solidifies Jesus's place in the [Trinity](https://www.christianity.com/god/trinity/god-in-three-persons-a-doctrine-we-barely-understand-11634405.html) with God the Father and the Holy Spirit. He was in the beginning with God. He is one with the invisible God. 
 
 ## Refuting False Doctrines
 
