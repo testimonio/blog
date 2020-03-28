@@ -1,55 +1,52 @@
-# 25 Health Benefits of Mindfulness Meditation, According to Science
-​
 The mind is an incredibly powerful tool. Within it, we can calculate, strategize, sympathize, recognize, memorize, survive, dream, build, believe. Everything that has ever been made, started as a thought. Everything that has ever been destroyed, started as a thought. It is absolutely amazing and it is absolutely terrifying, realizing the power of the mind.
-​
 
 **2 Corinthians 10:4-5 (NLT):**
-​
+
 > We use God’s weapons, not worldly weapons, to knock down the strongholds of human reasoning and to destroy false arguments. We destroy every proud obstacle that keeps people from knowing God. We capture their rebellious thoughts and teach them to obey Christ.
-​
+
 
 **Romans 12:2 (NIV)**
-​
+
 > Do not conform to the pattern of this world but be transformed by the renewing of your mind. Then you will be able to test and approve what God’s will is- his good, pleasing and perfect will.
-​
+
 
 **Philippians 4:8-9 (NIV)**
-​
+
 > Finally, brother and sisters, whatever is true, whatever is noble, whatever is right, whatever is pure, whatever is lovely, whatever is admirable-if anything is excellent or praiseworthy- think about such things. 9) Whatever you have learned or received or heard from me, or seen in me- put into practice. And the God of peace will be with you.
-​
+
 
 From these Scriptures, we can determine that:
-​
+
 - Left unkempt, our thoughts are rebellious.
 - God tells us to renew our minds to keep us from becoming like this world (stressed, anxious, depressed, etc.).
 - We renew our minds by considering the truth.
-​
+
 ### The Root is Belief
-​
+
 Years ago, I did a Bible study called, “[Battling Unbelief](https://www.desiringgod.org/series/battling-unbelief/messages)”, by [Pastor John Piper](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=2&ved=2ahUKEwiJzPeKqvrnAhUQPq0KHdbwAz4QFjABegQIAhAB&url=https%3A%2F%2Fwww.desiringgod.org%2Fauthors%2Fjohn-piper&usg=AOvVaw03bpO4LPljhA-h-VYvx6Zf). If you haven’t done this study, I would urge you to do so. The premise of this study is that at the root of all sin and all struggle is unbelief. Unbelief in God, His promises and his goodness. And while I believe he is correct and, maybe, I am just splitting hairs, I want to go half a step farther and declare that it isn’t merely unbelief that is the root of all sin, it is wrong beliefs. 
-​
+
 At the root of every decision, there is a belief. At the root of every word spoken, there is a belief. At the root of every action taken, there is a belief. You may have been taught that the universe happened by accident and that is what you have chosen to believe. And that belief has determined your way of thinking in far-reaching areas such as, who God is, who you are and whether or not you matter all that much in the grand scheme of things. Whether you have chosen to recognize it or not, believing that the world is an accident, has determined the value you have placed on yourself and the value that you have for the people around you. Belief matters. Thoughts matter. Renewing your mind by considering truth, righteousness and purity, matters.
-​
+
 When we practice mindfulness meditation in conjunction with right beliefs, beliefs that line up with Scripture, we will receive the greatest possible benefits. 
-​
+
 ### What is Mindfulness and How Should a Christian Approach it?
-​
+
 Mindfulness is the practice of paying attention in the present moment. Every single one of us has felt or will feel within ourselves a draw to negative thinking. For many, the past is haunting. I’m sure you’ve seen the memes floating around about trying to fall asleep and then your mind wanders to an embarrassing moment in your past or something bad happened and, suddenly, that’s all you can think about. For others, the future is unsettling. Where will I be in 20 years? Will I “make it”? Am I going to be single forever? Is life just always hard and then I die?! Or even, in considering the present, I, at least, have a tendency to focus on the hard. I have 5 children and a husband and a home to take care of and so many dreams that I am working toward. There are so many reasons to stress out and I am always so tempted to take every single one of those opportunities. But then, the Holy Spirit reminds me, I don’t have to stress, simply because He loves me. When we take a moment or two to remember His love, no fear, no struggle, no sorrow can over take it. 
-​
+
 ### How do you Practice Mindfulness?
-​
+
 As a Christian, there may be a number of ways we can practice mindfulness. We can consider a Scripture, we can count our blessings or we can clear our minds of all our worries and focus on feeling the love of God, even listening to his voice. Zephaniah 3:17 says “He rejoices over us with singing.” When we begin to understand that God is love and that He rejoices over us with singing, it’s such a tremendous revelation. How could we worry about anything? How could we so easily wander into negative thought patterns? In catching our pull toward negative thoughts and instead, press pause and ponder the Lord, renew our minds by thinking of His many characteristics, to me, that is the most beneficial use of mindful meditation.
-​
-​
+
+
 ### How Does Mindfulness Affect the Body?
-​
+
 Let’s take a look at the benefits of practicing Christ centered mindfulness meditation, not only to have a godly way of thinking but also to move forward in mental and physical health. Studies suggest that there are hundreds of health benefits for mindful meditation. Below are 25 scientifically proven health benefits of mindfulness meditation. Mindfulness is a technique of deliberately focusing your attention on the present, not allowing yourself to become distracted by other thoughts; you clear “noise” (fear, anxiety, stress, rebellious thoughts) from your mind. Focus on the truth of God’s word.
-​
+
 [Stress](https://www.healthline.com/health/stress/effects-on-body#1) is an underlying cause of many health concerns. Mindfulness based stress reduction can have far reaching benefits on your overall health. 
-​
-​
+
+
 ### 25 Amazing Health Benefits of Mindfulness Meditation
-​
+
 1. **Decreases Depression**: A [study conducted](https://www.sciencedaily.com/releases/2013/03/130315095916.htm) on secondary school students who follow an in-class mindfulness program reportedly decreased depression, stress, and anxiety 6-months later. [Research suggests](https://link.springer.com/article/10.1023/B:COTR.0000045557.15923.96) that once a person recognizes the thoughts of depression, they are able to intervene before it sinks in. [Meditation programs](https://jamanetwork.com/journals/jamainternalmedicine/fullarticle/1809754) have evidence shown to treat depression, anxiety, and stress after eight week mindfulness practices. 
 
 2. **Regulate Mood and Anxiety and bipolar disorders**. [Studies found](http://online.liebertpub.com/doi/abs/10.1089/acm.2006.12.817) that the strongest evidence for success was found for epilepsy, premenstrual syndrome symptoms and menopausal symptoms. Mood and anxiety disorders, autoimmune illness, and emotional disturbance in neoplastic disease were also [benefited](https://archinte.jamanetwork.com/article.aspx?articleid=1809754). [Meditation](https://www.healthline.com/health/bipolar-disorder/meditation) cannot replace medication for bipolar disorders, but the practice can improve the effect your medication has. Doctors are beginning to look into meditation as a beneficial addition to medication.
