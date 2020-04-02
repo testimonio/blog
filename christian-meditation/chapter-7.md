@@ -22,6 +22,8 @@ Harvard Medical School did a [study](https://www.health.harvard.edu/blog/mindful
 
 Learn how to lean on God to be a warrior, not a worrier. Biblical meditation helps you to live in the present. Every moment is a gift from God. It's important to enjoy them.
 
+[Learn more about Christian meditation for anxiety](https://testimon.io/christian-meditation/anxiety).
+
 ## Sleep
 
 Meditation can improve sleep quality for people with insomnia. Christian meditation evokes a relaxation response in your body during the day. This helps make it easier to fall asleep at night. The goal of Christian meditation is to create a reflex of peace in your life.
