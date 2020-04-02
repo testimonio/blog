@@ -16,9 +16,9 @@ Chronic stress is a key culprit behind a plethora of mental and physical health 
 
 Learning Christian meditation helps you handle the stress of the world. It helps you not panic when things don't go your way. It reduces the amount of stress we put on ourselves to perform. We learn to lean on Jesus when we encounter hardships. We learn to change how we react to our circumstances.
 
-## Anxiety
+## [Anxiety](https://testimon.io/christian-meditation/anxiety)
 
-Harvard Medical School did a [study](https://www.health.harvard.edu/blog/mindfulness-meditation-may-ease-anxiety-mental-stress-201401086967) in 2014 on mindfulness-based stress reduction. They discovered that it reduced the symptoms of generalized anxiety disorder.
+Harvard Medical School did a [study](https://www.health.harvard.edu/blog/mindfulness-meditation-may-ease-anxiety-mental-stress-201401086967) in 2014 on mindfulness-based stress reduction. They discovered that it reduced the symptoms of [generalized anxiety disorder](https://testimon.io/christian-meditation/anxiety).
 
 Learn how to lean on God to be a warrior, not a worrier. Biblical meditation helps you to live in the present. Every moment is a gift from God. It's important to enjoy them.
 
