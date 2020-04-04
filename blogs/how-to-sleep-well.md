@@ -2,9 +2,9 @@
  
 Sleep is often dismissed by people as a weakness. You often hear the old adage that *"sleep is for the weak"*. However, we are beginning to understand the role of sleep in our overall health and well-being. [According to research](https://jcsm.aasm.org/doi/10.5664/jcsm.7176), we are seeing that the lack of sleep has been linked to higher blood pressure and cholesterol, which are leading indicators for heart disease and stroke. [Harvard Medical School](https://www.health.harvard.edu/topics/sleep) research found that sleep deprivation increases "the risk for a number of chronic health problems", like obesity, diabetes, and heart failure. There is also a direct correlation between sleep and aging. [Studies](https://www.huffpost.com/entry/sleep-deprivation-effects-aging-skin_n_3644269) have suggested that sleep deprivation leads to aging skin.  In contrast, having good sleep habits can help you eat less, feel reduced stress, [exercise better](https://www.ncbi.nlm.nih.gov/pubmed/8776790), and enjoy [better health](https://www.ncbi.nlm.nih.gov/pubmed/15282995). Creating a healthy habit of sleeping well can lead to a significant positive impact on your quality of life. It's a key component of staying healthy.
  
-## Sleep tips to help you live better
+## 19 sleep tips to help you live better
  
-Getting a good night's sleep is one of the most important things you can do. Here is a list of simple tips for better sleep and boosting sleep health:
+Getting a good night's sleep is one of the most important things you can do. Here is a list of 19 simple tips for better sleep and boosting sleep health:
  
 **19. Follow a consistent sleep schedule**
  
