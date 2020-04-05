@@ -1,8 +1,8 @@
 # 38 Powerful Bible Verses To Overcome Anxiety and Depression
 
-Our world is full of anxiety and depression. One look around at the news, it seems like each day is getting worse and worse. Your life feels more and more overwhelming by the week. We find ourselves slowly losing hope for the future. 
+Our world is full of [anxiety](https://testimon.io/christian-meditation/anxiety) and depression. One look around at the news, it seems like each day is getting worse and worse. Your life feels more and more overwhelming by the week. We find ourselves slowly losing hope for the future. 
 
-Anxiety is the tendency to stress and fear about things. It's the gnawing feeling in your soul that sees a bleak situation and feels helpless. The truth of the matter is that you have the greatest help in the universe: God. The Lord hears your cries and wants to save you. 
+[Anxiety](https://testimon.io/christian-meditation/anxiety) is the tendency to stress and fear about things. It's the gnawing feeling in your soul that sees a bleak situation and feels helpless. The truth of the matter is that you have the greatest help in the universe: God. The Lord hears your cries and wants to save you. 
 
 As a Christian, we need put our minds in Christ Jesus. By putting our hope in God, we understand that He has already overcome the world. He is the God of all comfort, and the God which surpasses all  understanding. If you struggle with worry and stress, or anxiety and depression, lean on the word of God to renew your strength. God saves the crushed in spirit and opposes the proud.
 
