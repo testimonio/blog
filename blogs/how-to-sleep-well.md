@@ -28,9 +28,9 @@ Screens create an artificial blue light, which tricks your brain into thinking t
  
 A couple of methods you can use to reduce blue light exposure are:
  
-1. Wearing glasses that block blue light.
-2. Installing mobile apps that block blue light on your smart devices.
-3. Stop watching TV and turn off devices 2 hours before bed.
+- Wearing glasses that block blue light.
+- Installing mobile apps that block blue light on your smart devices.
+- Stop watching TV and turn off devices 2 hours before bed.
  
 **15. Exercise daily**
  
