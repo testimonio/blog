@@ -53,9 +53,9 @@ Here is a list of our favorite Scripture quotes to combat anxiety and depression
 
 > Come to me, all you who are weary and burdened, and I will give you rest. Take my yoke upon you and learn from me, for I am gentle and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.
 
-**27. Matthew 6:34**
+**27. 1 Corinthians 7:32**
 
-> Therefore do not worry about tomorrow, for tomorrow will worry about itself. Each day has enough trouble of its own.
+> I would like you to be free from concern. An unmarried man is concerned about the Lord's affairs--how he can please the Lord.
 
 **26. Isaiah 40:31**
 
