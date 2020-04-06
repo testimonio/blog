@@ -24,9 +24,9 @@ Learn how to lean on God to be a warrior, not a worrier. Biblical meditation hel
 
 [Learn more about Christian meditation for anxiety](https://testimon.io/christian-meditation/anxiety).
 
-## Sleep
+## [Sleep](https://testimon.io/christian-meditation/sleep)
 
-Meditation can improve sleep quality for people with insomnia. Christian meditation evokes a relaxation response in your body during the day. This helps make it easier to fall asleep at night. The goal of Christian meditation is to create a reflex of peace in your life.
+Meditation can improve [sleep quality](https://testimon.io/christian-meditation/sleep) for people with insomnia. Christian meditation evokes a relaxation response in your body during the day. This helps make it easier to fall asleep at night. The goal of Christian meditation is to create a reflex of peace in your life.
 
 One of the major causes of insomnia is a high-level of stress. Some nights, you may feel exhausted but your mind keeps racing. You are unable to come down from a state of heightened alert. Through meditation, people reported improved sleep quality.
 
