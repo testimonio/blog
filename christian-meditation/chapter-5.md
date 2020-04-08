@@ -1,6 +1,6 @@
 ## How do Christians meditate?
 
-Let's put aside all your preconceived notion of meditation and start from scratch. Like prayer, meditation starts with a personal relationship with Jesus Christ. Biblical meditation is about quieting our hearts with Scripture. It has been used in monastic tradition since the fourth century. It is commonly referred to as **lectio divina**, or sacred reading. Biblical meditation is a statement of faith. It lets you have union with God. Grab a Bible and consider these simple ways to get started:
+Let's put aside all your preconceived notion of meditation and start from scratch. Like prayer, meditation starts with a personal relationship with [Jesus Christ](https://testimon.io/blog/jesus-quotes-about-love). Biblical meditation is about quieting our hearts with Scripture. It has been used in monastic tradition since the fourth century. It is commonly referred to as **lectio divina**, or sacred reading. Biblical meditation is a statement of faith. It lets you have union with God. Grab a Bible and consider these simple ways to get started:
 
 **Contemplative Prayer**
 
