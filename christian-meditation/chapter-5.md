@@ -8,7 +8,11 @@ The key to contemplative prayer is to focus on God's glory. This involves a peri
 
 **Memorizing Verses**
 
-God wants us to be close to His word. He wants us to keep it in our hearts. Bible study helps us learn more about God’s nature. In [Psalms 119:11](https://www.bible.com/bible/111/psa.119.11), it says "I have hidden your word in my heart that I might not sin against you". Being able to recall Scripture is powerful. You can call on it during periods of stress and hardship. Memorizing verses help you commit God's Word to the top of mind. Connect your mind with God's. Know His thoughts through His Word.
+God wants us to be close to His word. He wants us to keep it in our hearts. Bible study helps us learn more about God’s nature. In [Psalms 119:11](https://www.bible.com/bible/111/psa.119.11), it says: 
+
+> "I have hidden your word in my heart that I might not sin against you". 
+
+Being able to recall Scripture is powerful. You can call on it during periods of stress and hardship. Memorizing verses help you commit God's Word to the top of mind. Connect your mind with God's. Know His thoughts through His Word.
 
 **Writing in a Journal**
 
