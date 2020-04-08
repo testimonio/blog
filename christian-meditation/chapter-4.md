@@ -1,12 +1,12 @@
 ## Guided and unguided Christian meditation
 
-Christian meditation starts and ends with [God's word](https://testimon.io/blog/is-jesus-the-word). If you have a Bible, you can get started today. With any new habit, beginners often benefit with the help of a guide - in person or via a recording. Guided Christian meditation provides clear instruction and support for the end-user.
+[Christian meditation](https://testimon.io/what-is-christian-meditation) starts and ends with [God's word](https://testimon.io/blog/is-jesus-the-word). If you have a [Bible](https://www.bible.com), you can get started today. With any new habit, beginners often benefit with the help of a guide - in person or via a recording. Guided Christian meditation provides clear instruction and support for the end-user.
 
-Unguided Christian meditation is a solo focus on God's word. A person can do unguided Christian meditation with a Bible and [focus on God's word](https://testimon.io/blog/is-jesus-the-word). Unguided Christian meditation is not easy to do without the proper experience. It's like flying a plane without an instructor.
+Unguided Christian meditation is a solo focus on God's word. A person can do unguided Christian meditation with a Bible and focus on God's word. Unguided Christian meditation is not easy to do without the proper experience. It's like flying a plane without an instructor.
 
-Guided Christian meditation is like learning to fly with an experienced pilot. They will offer you nuggets of wisdom and encouragement. Some people will need this guidance for a long period of time. Others will go alone after learning the fundamentals.
+[Guided Christian meditation](https://testimon.io/blog/best-apps-guided-meditation) is like learning to fly with an experienced instructor. They will offer you nuggets of wisdom and encouragement. Some people will need this guidance for a long period of time. Others will go alone after learning the fundamentals.
 
-Here are some great options for guided Christian meditation to get you started:
+Here are some great options for [guided Christian meditation](https://testimon.io/blog/best-apps-guided-meditation) to get you started:
 
 **Search on YouTube or download an app**
 
