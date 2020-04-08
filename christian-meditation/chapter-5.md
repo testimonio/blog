@@ -8,7 +8,7 @@ The key to contemplative prayer is to focus on God's glory. This involves a peri
 
 **Memorizing Verses**
 
-God wants us to be close to His word. He wants us to keep it in our hearts. Bible study helps us learn more about God’s nature. In Psalm 119:11, it says "I have hidden your word in my heart that I might not sin against you". Being able to recall Scripture is powerful. You can call on it during periods of stress and hardship. Memorizing verses help you commit God's Word to the top of mind. Connect your mind with God's. Know His thoughts through His Word.
+God wants us to be close to His word. He wants us to keep it in our hearts. Bible study helps us learn more about God’s nature. In [Psalms 119:11](https://www.bible.com/bible/111/psa.119.11), it says "I have hidden your word in my heart that I might not sin against you". Being able to recall Scripture is powerful. You can call on it during periods of stress and hardship. Memorizing verses help you commit God's Word to the top of mind. Connect your mind with God's. Know His thoughts through His Word.
 
 **Writing in a Journal**
 
@@ -16,4 +16,4 @@ Writing down your thoughts can be meditation in itself. It allows you to have a 
 
 **Be in His Creation**
 
-Spend time with God's creation. Take a walk in nature and enjoy a period of prayer time with God. The Bible says God's “invisible attributes, namely, his eternal power and divine nature, have been clearly perceived, ever since the creation of the world, in the things that have been made” (Romans 1:20). Nature reveals God in unique ways. From the beauty of a sunset and the bloom of a flower, God is at work. If it's hard to sit still, take a walk. Walking in nature is a meditative practice that calms your busy mind. The Holy Spirit is waiting to talk to you.
+Spend time with God's creation. Take a walk in nature and enjoy a period of prayer time with God. The Bible says God's “invisible attributes, namely, his eternal power and divine nature, have been clearly perceived, ever since the creation of the world, in the things that have been made” ([Romans 1:20](https://www.bible.com/bible/111/rom.1.20)). Nature reveals God in unique ways. From the beauty of a sunset and the bloom of a flower, God is at work. If it's hard to sit still, take a walk. Walking in nature is a meditative practice that calms your busy mind. The Holy Spirit is waiting to talk to you.
