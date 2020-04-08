@@ -14,6 +14,6 @@ The Bible says we should meditate on the Book of the Law day and night. The basi
 
 When God speaks to our hearts, something gets stirred up in our hearts. We learn to recognize His voice, and feel peace in His presence.
 
-[Christian meditation](https://testimon.io/what-is-christian-meditation) is Bible-based. When our foundation is of faith, it provides nourishment to the seed planted in our spirit. God is a Spirit, and we are made in His image and likeness.
+[Christian meditation](https://testimon.io/what-is-christian-meditation) is Bible-based. When our foundation is of faith, it provides nourishment to the seed planted in our spirit. God is a Spirit, and we are made in His image and likeness. In [Genesis 1:27](https://www.bible.com/bible/111/gen.1.27): 
 
-> "So God created mankind in his own image, in the image of God he created them; male and female he created them." [Genesis 1:27](https://www.bible.com/bible/111/gen.1.27)
+> "So God created mankind in his own image, in the image of God he created them; male and female he created them." 
